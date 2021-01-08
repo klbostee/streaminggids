@@ -22,8 +22,8 @@ for teaser in teasers:
                 "link": link,
                 "title": teaser.find("h1", class_="teaser__title").string.strip(),
                 "image": teaser.find("img")["src"],
+                "type": teaser.find("span", class_="teaser__label").contents[0].strip().upper(),
                 "stars": stars_span.string.strip(),
-                "type": teaser["data-soort"].strip(),
                 "tags": tags,
             }
 
@@ -33,5 +33,5 @@ entries.sort(key=lambda x: x["stars"], reverse=True)  # primary sort
 with open("README.md", "w") as file:
     for entry in entries:
         file.write(f'### [{entry["title"]}]({entry["link"]})\n')
-        file.write(f'{entry["stars"]} {entry["tags"]}\n\n')
+        file.write(f'{entry["type"]} {entry["stars"]} {entry["tags"]}\n\n')
         file.write(f'![thumbnail]({entry["image"]})\n\n')
