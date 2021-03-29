@@ -68,6 +68,11 @@ SERIE ★★★★½ drama vrtnu
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/04/state-300x157.jpg)
 
+### [‘The Investigation’ is mogelijks de beste Scandinavische misdaadserie ooit](https://www.humo.be/tv/the-investigation-is-mogelijks-de-beste-scandinavische-misdaadserie-ooit~be37446f/)
+SERIE ★★★★½ drama lumiere
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T130442.200-300x225.jpeg)
+
 ### [‘The Last Dance’ op Netflix: ‘Slam dunk!’](https://www.humo.be/tv/the-last-dance-op-netflix-slam-dunk~b77caf80/)
 DOCU ★★★★½ waargebeurd netflix
 
@@ -223,6 +228,11 @@ SERIE ★★★★ drama komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2019/12/Sex-Education-300x200.jpg)
 
+### [‘Solar Opposites’ lijkt inderdaad op ‘Rick and Morty’. So what?](https://www.humo.be/tv/solar-opposites-lijkt-inderdaad-op-rick-and-morty-so-what~bb5a7203/)
+SERIE ★★★★ komedie disney
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T125909.213-300x169.jpeg)
+
 ### [‘Sound Of Metal’ op Prime: heavy metal was zijn leven, zijn bloed en zijn drug. Maar toen werd Ruben doof](https://www.humo.be/tv/sound-of-metal-op-prime-heavy-metal-was-zijn-leven-zijn-bloed-en-zijn-drug-maar-toen-werd-ruben-doof~b767e04c/)
 FILM ★★★★ drama amazon
 
@@ -287,6 +297,11 @@ SERIE ★★★½ thriller netflix
 DOCU ★★★½ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/03/lol-300x200.jpg)
+
+### [In ‘The Falcon and the Winter Soldier’ vonden we de charme van de stripverhalen terug](https://www.humo.be/tv/in-the-falcon-and-the-winter-soldier-vonden-we-de-charme-van-de-stripverhalen-terug~bf201069/)
+SERIE ★★★½ drama disney
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T130057.010-300x169.jpeg)
 
 ### [Op zijn beste momenten overstíjgt ‘Cobra Kai’ zelfs het tienerlabel](https://www.humo.be/tv/op-zijn-beste-momenten-overstijgt-cobra-kai-zelfs-het-tienerlabel~b9d2ce12/)
 SERIE ★★★½ drama netflix
@@ -397,6 +412,11 @@ SERIE ★★★½ drama streamz
 SERIE ★★★½ thriller romantisch streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/04/run-300x200.jpg)
+
+### [‘Sky Rojo’ op Netflix is beter dan ‘La casa de papel’ (maar wel minder spannend)](https://www.humo.be/tv/sky-rojo-op-netflix-is-beter-dan-la-casa-de-papel-maar-wel-minder-spannend~bbad2e4c/)
+SERIE ★★★½ drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T125645.917-300x193.jpeg)
 
 ### [‘Taylor Swift: Miss Americana’ op Netflix: ‘TayTay lijkt eindelijk iets te zeggen te hebben’](https://www.humo.be/tv/taylor-swift-miss-americana-op-netflix-taytay-lijkt-eindelijk-iets-te-zeggen-te-hebben~b8921fb3/)
 DOCU ★★★½ waargebeurd netflix
