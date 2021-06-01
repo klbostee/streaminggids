@@ -13,6 +13,11 @@ SERIE ★★★★★ drama streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/04/against-america-300x169.jpg)
 
+### [‘The Underground Railroad’ is van zo’n zeldzame schoonheid dat je er beter zuinig mee bent](https://www.humo.be/tv/the-underground-railroad-is-van-zo-n-zeldzame-schoonheid-dat-je-er-beter-zuinig-mee-bent~b7fe7b06/)
+SERIE ★★★★★ waargebeurd drama amazon
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-12-300x200.jpg)
+
 ### [‘Who killed Malcolm X?’ geeft een onthutsend beeld van het politieoptreden na de moord](https://www.humo.be/tv/who-killed-malcolm-x-geeft-een-onthutsend-beeld-van-het-politieoptreden-na-de-moord~b07d46ac/)
 DOCU ★★★★★ waargebeurd netflix
 
@@ -68,10 +73,20 @@ SERIE ★★★★½ drama komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2019/12/Russian-Doll-300x150.jpg)
 
+### [‘Schitt’s Creek’ is een geniepige serie, eentje die stiekem en zeer zachtjes de klauwen in het hart zet](https://www.humo.be/tv/schitt-s-creek-is-een-geniepige-serie-eentje-die-stiekem-en-zeer-zachtjes-de-klauwen-in-het-hart-zet~b5db03d6/)
+SERIE ★★★★½ komedie vrtnu
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-8-300x169.jpg)
+
 ### [‘State of the Union’ is een van de mooiste, ontroerendste en kortste series in tijden](https://www.humo.be/tv/state-of-the-union-is-een-van-de-mooiste-ontroerendste-en-kortste-series-in-tijden~bb67deea/)
 SERIE ★★★★½ drama vrtnu
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/04/state-300x157.jpg)
+
+### [‘The Investigation’ is misschien wel de beste Scandinavische misdaadserie ooit](https://www.humo.be/tv/the-investigation-is-misschien-wel-de-beste-scandinavische-misdaadserie-ooit~be37446f/)
+SERIE ★★★★½ waargebeurd drama misdaad vrtnu mylumtv
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-9-300x225.jpg)
 
 ### [‘The Investigation’ is mogelijks de beste Scandinavische misdaadserie ooit](https://www.humo.be/tv/the-investigation-is-mogelijks-de-beste-scandinavische-misdaadserie-ooit~be37446f/)
 SERIE ★★★★½ drama lumiere
@@ -128,6 +143,11 @@ SERIE ★★★★ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2019/12/Criminal-300x103.jpg)
 
+### [In ‘The Flight Attendant’ is Kaley Cuoco zo ontzettend goed dat ze in één klap twaalf seizoenen van ‘The Big Bang Theory’ doet vergeten](https://www.humo.be/tv/in-the-flight-attendant-is-kaley-cuoco-zo-ontzettend-goed-dat-ze-in-een-klap-twaalf-seizoenen-van-the-big-bang-theory-doet-vergeten~bd78c822/)
+SERIE ★★★★ drama thriller misdaad streamz
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-8-300x169.jpg)
+
 ### [Ja, we hebben veel gehuild bij ‘Father Soldier Son’ op Netflix](https://www.humo.be/tv/ja-we-hebben-veel-gehuild-bij-father-soldier-son-op-netflix~bbb83947/)
 DOCU ★★★★ waargebeurd netflix
 
@@ -137,6 +157,11 @@ DOCU ★★★★ waargebeurd netflix
 SERIE ★★★★ drama streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-3-300x169.jpg)
+
+### [Op zijn beste momenten lijkt ‘Snabba Cash’ een Zweedse versie van ‘The Wire’](https://www.humo.be/tv/op-zijn-beste-momenten-lijkt-snabba-cash-een-zweedse-versie-van-the-wire~b5e5ee5e/)
+SERIE ★★★★ drama misdaad netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-7-300x169.jpg)
 
 ### [Seizoen 3 van ‘Stranger Things’ op Netflix blinkt weer uit in sfeer, muziek en innemende personages](https://www.humo.be/serie-reviews/403359/seizoen-3-van-stranger-things-op-netflix-blinkt-weer-uit-in-sfeer-muziek-en-innemende-personages)
 SERIE ★★★★ drama thriller netflix
@@ -323,6 +348,11 @@ SERIE ★★★½ drama disney
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T130057.010-300x169.jpeg)
 
+### [In ‘We Are Who We Are’ wordt duidelijk dat we vaak net niét zijn wie we denken te zijn](https://www.humo.be/tv/in-we-are-who-we-are-hbo-wordt-duidelijk-dat-we-vaak-net-niet-zijn-wie-we-denken-te-zijn~b201397c/)
+SERIE ★★★½ drama mylumtv
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-14-300x165.jpg)
+
 ### [Kate Winslet is fantastisch in ‘Mare of Easttown’ op Streamz, jammer dat de rest van de serie dat minder is](https://www.humo.be/tv/kate-winslet-is-fantastisch-in-mare-of-easttown-op-streamz-jammer-dat-de-rest-van-de-serie-dat-minder-is~bfbe48a0/)
 SERIE ★★★½ drama misdaad streamz
 
@@ -498,6 +528,11 @@ FILM ★★★½ romantisch komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/01/1240-5-300x200.jpeg)
 
+### [‘The Sinner’ is geen meesterwerk, maar fans van complexe mysteries zullen smullen](https://www.humo.be/nieuws/the-sinner-trauma-s-religieuze-waanzin-en-duistere-geheimen-in-een-psychologische-thrillerserie~ba471094/)
+SERIE ★★★½ drama thriller netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-9-300x200.jpg)
+
 ### [‘The Society’ op Netflix is een tienerserie met het hart op de juiste plaats](https://www.humo.be/serie-reviews/401749/the-society-op-netflix)
 SERIE ★★★½ drama thriller netflix
 
@@ -522,6 +557,11 @@ FILM ★★★ komedie netflix
 DOCU ★★★ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/08/1240-4-300x169.jpeg)
+
+### [Och wat heeft ‘The Serpent’ op Netflix veel stijl, maar écht raken doet de serie niet](https://www.humo.be/tv/och-wat-heeft-the-serpent-op-netflix-veel-stijl-maar-echt-raken-doet-de-serie-niet~b2c0177d/)
+SERIE ★★★ waargebeurd drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-10-300x200.jpg)
 
 ### [‘22 Juli’ op lumiereseries.com: Hoe Anders Breivik Noorwegen voor altijd veranderde](https://www.humo.be/tv/22-juli-op-lumiereseries-com-hoe-anders-breivik-noorwegen-voor-altijd-veranderde~be1c3f9c/)
 SERIE ★★★ drama lumiere
@@ -567,6 +607,11 @@ FILM ★★★ drama netflix
 SERIE ★★★ komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/02/sex-300x104.jpeg)
+
+### [‘Shadow and Bone’ op Netflix mist nog de durf en originaliteit om een monsterhit te worden](https://www.humo.be/tv/shadow-and-bone-op-netflix-mist-nog-de-durf-en-originaliteit-om-een-monsterhit-te-worden~b46ed2f4/)
+SERIE ★★★ drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-6-300x200.jpg)
 
 ### [‘The Mandalorian’ is lichtjaren verwijderd van de originele ‘Star Wars’-trilogie](https://www.humo.be/tv/the-mandalorian-is-lichtjaren-verwijderd-van-de-originele-star-wars-trilogie~b639a5de/)
 SERIE ★★★ drama disney
