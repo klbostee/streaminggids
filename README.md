@@ -58,6 +58,11 @@ DOCU ★★★★½ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/08/immigration-300x169.jpeg)
 
+### [‘It’s a Sin’ op VRT NU is een prachtige serie over een verschrikkelijk onderwerp](https://www.humo.be/tv/it-s-a-sin-op-vrt-nu-is-een-prachtige-serie-over-een-verschrikkelijk-onderwerp~bd086197/)
+SERIE ★★★★½ drama vrtnu
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-5-300x200.jpg)
+
 ### [‘Russian Doll’ op Netflix](https://www.humo.be/serie-reviews/398283/russian-doll-op-netflix)
 SERIE ★★★★½ drama komedie netflix
 
@@ -103,6 +108,11 @@ SERIE ★★★★ waargebeurd streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/11/1240-2020-11-02T121932.518-300x200.jpeg)
 
+### [David Tennant is angstaandjagend goed als seriemoordenaar Dennis Nilsen in ‘Des’]()
+SERIE ★★★★ waargebeurd drama vrtnu
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-1-1-300x169.jpg)
+
 ### [Elk besproken liedje klinkt na ‘Song Exploder’ op Netflix nóg wat mooier](https://www.humo.be/tv/elk-besproken-liedje-klinkt-na-song-exploder-op-netflix-nog-wat-mooier~bb202d2b/)
 DOCU ★★★★ waargebeurd netflix
 
@@ -122,6 +132,11 @@ SERIE ★★★★ drama netflix
 DOCU ★★★★ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/07/1240-18-300x200.jpg)
+
+### [Na tien jaar wachten op het vierde seizoen, stelt ‘In Treatment’ nog steeds niet teleur](https://www.humo.be/tv/die-ochtend-op-de-bank-bij-de-therapeut-zelf-had-ik-in-treatment-nooit-gezien-voor-mijn-gemoedsrust~ba00f349/)
+SERIE ★★★★ drama streamz
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-3-300x169.jpg)
 
 ### [Seizoen 3 van ‘Stranger Things’ op Netflix blinkt weer uit in sfeer, muziek en innemende personages](https://www.humo.be/serie-reviews/403359/seizoen-3-van-stranger-things-op-netflix-blinkt-weer-uit-in-sfeer-muziek-en-innemende-personages)
 SERIE ★★★★ drama thriller netflix
@@ -298,10 +313,25 @@ DOCU ★★★½ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/03/lol-300x200.jpg)
 
+### [In ‘Halston’ op Netflix zie je cocaïne, buitensporige feestjes, vrijpartijen, businessmeetings en nog meer cocaïne](https://www.humo.be/tv/in-halston-op-netflix-zie-je-cocaine-buitensporige-feestjes-vrijpartijen-businessmeetings-en-nog-meer-cocaine~b9034c73/)
+SERIE ★★★½ waargebeurd drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-4-300x200.jpg)
+
 ### [In ‘The Falcon and the Winter Soldier’ vonden we de charme van de stripverhalen terug](https://www.humo.be/tv/in-the-falcon-and-the-winter-soldier-vonden-we-de-charme-van-de-stripverhalen-terug~bf201069/)
 SERIE ★★★½ drama disney
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T130057.010-300x169.jpeg)
+
+### [Kate Winslet is fantastisch in ‘Mare of Easttown’ op Streamz, jammer dat de rest van de serie dat minder is](https://www.humo.be/tv/kate-winslet-is-fantastisch-in-mare-of-easttown-op-streamz-jammer-dat-de-rest-van-de-serie-dat-minder-is~bfbe48a0/)
+SERIE ★★★½ drama misdaad streamz
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-5-300x200.jpg)
+
+### [Nagelbijter ‘Bloodlands’ is een ijzersterke misdaadserie](https://www.humo.be/tv/bloedband-in-bloodlands-mijn-vader-is-uiteindelijk-dankbaar-dat-ik-zijn-zoon-ben~bd3741ab/)
+SERIE ★★★½ drama vrtnu
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-2-300x200.jpg)
 
 ### [Op zijn beste momenten overstíjgt ‘Cobra Kai’ zelfs het tienerlabel](https://www.humo.be/tv/op-zijn-beste-momenten-overstijgt-cobra-kai-zelfs-het-tienerlabel~b9d2ce12/)
 SERIE ★★★½ drama netflix
@@ -333,6 +363,11 @@ DOCU ★★★½ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/07/1240-15-300x200.jpg)
 
+### [‘Big Shot’ op Disney+ bevat een nog meliger moment dan Django die een gedicht voordraagt aan Elke Clijsters](https://www.humo.be/tv/big-shot-op-disney-bevat-een-nog-meliger-moment-dan-django-die-een-gedicht-voordraagt-aan-elke-clijsters~b70cc4eb/)
+SERIE ★★★½ drama disney
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-3-300x166.jpg)
+
 ### [‘Boys State’ op Apple TV: ‘Jongeren brengen in één week vanuit het niets een volwaardige regering op de been’](https://www.humo.be/tv/boys-state-op-apple-tv-jongeren-brengen-in-een-week-vanuit-het-niets-een-volwaardige-regering-op-de-been~b72b1cca/)
 DOCU ★★★½ waargebeurd apple
 
@@ -347,6 +382,11 @@ COMEDY ★★★½ komedie netflix
 FILM ★★★½ drama thriller netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2019/12/El-Camino-300x103.jpg)
+
+### [‘El inocente’ op Netflix is mysterieus en ingenieus genoeg om zijn zwakke punten te verdoezelen](https://www.humo.be/tv/el-inocente-op-netflix-is-mysterieus-en-ingenieus-genoeg-om-zijn-zwakke-punten-te-verdoezelen~bfae324e/)
+SERIE ★★★½ thriller misdaad netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/innocente-300x200.jpg)
 
 ### [‘High Flying Bird’ op Netflix](https://www.humo.be/serie-reviews/398571/high-flying-bird-op-netflix)
 FILM ★★★½ drama netflix
