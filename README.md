@@ -33,6 +33,11 @@ SERIE ★★★★½ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/07/AAAABY6wve1bC9sCBRyp0XPHekvfHKFND9OAEpzh7bnxq_f2dbzpD1vXz8kf6I_fjkHpQu21LVSUJ1RntTNMJUq1TgNFURZ3-300x169.jpg)
 
+### [Diep begraven in de catalogus van Netflix ligt het absolute meesterwerk ‘A Sun’](https://www.humo.be/tv/diep-begraven-in-de-catalogus-van-netflix-ligt-het-absolute-meesterwerk-a-sun~b1896d8e/)
+FILM ★★★★½ drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-95-300x164.jpg)
+
 ### [Geef ‘I’m Thinking of Ending Things’ op Netflix een kans, het is een van de mooiste films van het jaar!](https://www.humo.be/tv/geef-i-m-thinking-of-ending-things-op-netflix-een-kans-het-is-een-van-de-mooiste-films-van-het-jaar~b2152873/)
 FILM ★★★★½ drama thriller netflix
 
@@ -187,6 +192,11 @@ SERIE ★★★★ drama streamz
 SERIE ★★★★ drama misdaad netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-7-300x169.jpg)
+
+### [Raya and the Last Dragon: Eindelijk, een Disney grand cru!](https://www.humo.be/tv/eindelijk-een-disney-grand-cru~ba81219c/)
+FILM ★★★★ drama komedie animatie disney
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-83-300x153.jpg)
 
 ### [Seizoen 3 van ‘Stranger Things’ op Netflix blinkt weer uit in sfeer, muziek en innemende personages](https://www.humo.be/serie-reviews/403359/seizoen-3-van-stranger-things-op-netflix-blinkt-weer-uit-in-sfeer-muziek-en-innemende-personages)
 SERIE ★★★★ drama thriller netflix
@@ -503,6 +513,11 @@ DOCU ★★★½ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/07/1240-15-300x200.jpg)
 
+### [‘Atlantis’: een fraaie demonstratie van virtuositeit](https://www.humo.be/tv/atlantis-een-fraaie-demonstratie-van-virtuositeit~bd839d6e/)
+FILM ★★★½ drama actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-94-300x169.jpg)
+
 ### [‘Big Shot’ op Disney+ bevat een nog meliger moment dan Django die een gedicht voordraagt aan Elke Clijsters](https://www.humo.be/tv/big-shot-op-disney-bevat-een-nog-meliger-moment-dan-django-die-een-gedicht-voordraagt-aan-elke-clijsters~b70cc4eb/)
 SERIE ★★★½ drama disney
 
@@ -512,6 +527,11 @@ SERIE ★★★½ drama disney
 DOCU ★★★½ waargebeurd disney
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-54-300x169.jpg)
+
+### [‘Bombay Rose’ is een droom van een animatiefilm gevuld met adembenemend mooie momenten](https://www.humo.be/tv/bombay-rose-is-een-droom-van-een-animatiefilm-gevuld-met-adembenemend-mooie-momenten~b5e018dd/)
+FILM ★★★½ drama romantisch animatie netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-24-300x126.jpg)
 
 ### [‘Boss Level’ is alsof je naar een ‘Groundhog Day’ met John Wick kijkt](https://www.humo.be/tv/boss-level-is-alsof-je-naar-een-groundhog-day-met-john-wick-kijkt~b75d7ce5/)
 FILM ★★★½ thriller actie apple
@@ -573,6 +593,11 @@ SERIE ★★★½ drama streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/06/destroy-300x169.jpg)
 
+### [‘Kajillionaire’: pöetisch en ontroerend](https://www.humo.be/tv/kajillionaire-poetisch-en-ontroerend~b42e4849/)
+FILM ★★★½ drama apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-97-300x200.jpg)
+
 ### [‘Knock Down the House’ op Netflix weet politiek bijna ontroerend te maken](https://www.humo.be/tv-reviews/401421/knock-down-the-house-op-netflix-weet-politiek-bijna-ontroerend-te-maken)
 DOCU ★★★½ waargebeurd netflix
 
@@ -593,6 +618,11 @@ FILM ★★★½ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/01/1240-2021-01-05T073654.607-300x200.jpeg)
 
+### [‘Mario Puzo’s The Godfather Coda: The Death Of Michael Corleone’: ‘Pull us back in, baby!’](https://www.humo.be/tv/mario-puzo-s-the-godfather-coda-the-death-of-michael-corleone-pull-us-back-in-baby~b93dddef/)
+FILM ★★★½ drama misdaad actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-92-300x169.jpg)
+
 ### [‘Master of None: Moments In Love’ bevat weinig grappen, maar wel heel veel moois](https://www.humo.be/tv/master-of-none-moments-in-love-bevat-weinig-grappen-maar-wel-heel-veel-moois~be84c0ef/)
 SERIE ★★★½ drama komedie netflix
 
@@ -607,6 +637,11 @@ SERIE ★★★½ waargebeurd netflix
 SERIE ★★★½ waargebeurd streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/07/marieclaire-charlotte-vandermeersch-300x169.jpeg)
+
+### [‘Palm Springs’ is een fijne en grappige tijdlusfilm, maar net wat minder goed dan ‘Groundhog Day’](https://www.humo.be/tv/palm-springs-is-een-fijne-en-grappige-tijdlusfilm-maar-net-wat-minder-goed-dan-groundhog-day~bb2256e9/)
+FILM ★★★½ romantisch komedie amazon
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-16-300x169.jpg)
 
 ### [‘Project Power’ op Netflix: ‘Lekker pretentieloze fun’](https://www.humo.be/tv/project-power-op-netflix-lekker-pretentieloze-fun~b69d8f88/)
 FILM ★★★½ thriller netflix
@@ -643,6 +678,11 @@ SERIE ★★★½ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/03/1240-2021-03-29T125645.917-300x193.jpeg)
 
+### [‘Synchronic’ is een als tijdreisthriller vermomde mijmering over liefde, vriendschap en de rol van toeval in het leven](https://www.humo.be/tv/synchronic-is-een-als-tijdreisthriller-vermomde-mijmering-over-liefde-vriendschap-en-de-rol-van-toeval-in-het-leven~b8ecd8b2/)
+FILM ★★★½ drama thriller apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-23-300x168.jpg)
+
 ### [‘Taylor Swift: Miss Americana’ op Netflix: ‘TayTay lijkt eindelijk iets te zeggen te hebben’](https://www.humo.be/tv/taylor-swift-miss-americana-op-netflix-taytay-lijkt-eindelijk-iets-te-zeggen-te-hebben~b8921fb3/)
 DOCU ★★★½ waargebeurd netflix
 
@@ -667,6 +707,16 @@ FILM ★★★½ drama netflix
 FILM ★★★½ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-34-300x169.jpg)
+
+### [‘The Empty Man’ is een fascinerende maalstroom van opwinding, rusteloosheid en zielsangst](https://www.humo.be/tv/the-empty-man-is-een-fascinerende-maalstroom-van-opwinding-rusteloosheid-en-zielsangst~b95ebd1f/)
+FILM ★★★½ thriller actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-27-300x207.jpg)
+
+### [‘The Glorias’: Wow! Schwing! Hot!](https://www.humo.be/tv/the-glorias-wow-schwing-hot~bcc0bac9/)
+FILM ★★★½ drama apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-89-300x200.jpg)
 
 ### [‘The Haunting of Bly Manor’ op Netflix: ‘We zouden bijna vergeten dat het een horrorserie is’](https://www.humo.be/tv/the-haunting-of-bly-manor-op-netflix-we-zouden-bijna-vergeten-dat-het-een-horrorserie-is~bb510f17/)
 SERIE ★★★½ thriller netflix
@@ -708,10 +758,20 @@ SERIE ★★★½ drama thriller netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2019/12/The-Society-300x158.png)
 
+### [‘The White Tiger’ schiet met scherp op ‘Slumdog Millionaire’](https://www.humo.be/tv/the-white-tiger-op-netflix-schiet-met-scherp-op-slumdog-millionaire~b7239e9c/)
+FILM ★★★½ drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-93-300x200.jpg)
+
 ### [‘Tiger King’ op Netflix is zo gestoord dat je wel moet blijven kijken](https://www.humo.be/tv/tiger-king-op-netflix-is-zo-gestoord-dat-je-wel-moet-blijven-kijken~b4065cd2/)
 DOCU ★★★½ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/04/king-300x196.jpg)
+
+### [‘Wolfwalkers’ is ideaal kijkvoer voor alle jonggeborenen tussen 5 en 105 jaar](https://www.humo.be/tv/wolfwalkers-is-ideaal-kijkvoer-voor-alle-jonggeborenen-tussen-5-en-105-jaar~b69bd408/)
+FILM ★★★½ drama animatie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-99-300x169.jpg)
 
 ### [Als horrorfilm overstijgt ‘Things Heard & Seen’ nergens de middelmaat](https://www.humo.be/tv/als-horrorfilm-overstijgt-things-heard-seen-nergens-de-middelmaat~b4fae830/)
 FILM ★★★ drama thriller netflix
@@ -722,6 +782,11 @@ FILM ★★★ drama thriller netflix
 DOCU ★★★ waargebeurd vrtnu
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-48-300x169.jpg)
+
+### [Dankzij Justin Timberlake klopt in ‘Palmer’ tenminste een hart](https://www.humo.be/tv/dankzij-justin-timberlake-klopt-in-palmer-tenminste-een-hart~bdd435bd/)
+FILM ★★★ drama apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-87-300x169.jpg)
 
 ### [Het claustrofobische ‘Oxygène’ bevat genoeg twists om boeiend te blijven](https://www.humo.be/tv/het-claustrofobische-oxygene-netflix-bevat-genoeg-twists-om-boeiend-te-blijven~ba2401f3/)
 FILM ★★★ drama thriller netflix
@@ -742,6 +807,11 @@ FILM ★★★ drama apple
 SERIE ★★★ drama disney
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/11/1240-2020-11-02T122023.834-300x169.jpeg)
+
+### [In ‘News of the World’ maak je een roadtrip doorheen de schaduwzijde van de Amerikaanse ziel](https://www.humo.be/tv/in-news-of-the-world-maak-je-een-roadtrip-doorheen-de-schaduwzijde-van-de-amerikaanse-ziel~bd026aab/)
+FILM ★★★ drama actie netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-86-300x200.jpg)
 
 ### [In ‘Soul’ op Disney+ blijft de Pixar-betovering grotendeels uit](https://www.humo.be/tv/in-soul-op-disney-blijft-de-pixar-betovering-grotendeels-uit~b890b680/)
 FILM ★★★ komedie netflix
@@ -768,6 +838,11 @@ FILM ★★★ drama thriller actie amazon
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-66-300x169.jpg)
 
+### [We zouden zelf eens willen gaan grazen in de schapenweiden van ‘Dark River’](https://www.humo.be/tv/we-zouden-zelf-eens-willen-gaan-grazen-in-de-schapenweiden-van-dark-river~bf58907f/)
+FILM ★★★ drama apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-28-300x198.jpg)
+
 ### [Wij zagen in ‘City of Lies’ vooral dat Johnny Depp nog steeds een goede acteur is](https://www.humo.be/tv/wij-zagen-in-city-of-lies-vooral-dat-johnny-depp-nog-steeds-een-goede-acteur-is~baf6131b/)
 FILM ★★★ waargebeurd drama misdaad amazon
 
@@ -792,6 +867,11 @@ FILM ★★★ komedie netflix
 FILM ★★★ komedie amazon
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/11/1240-2020-11-02T122622.020-300x225.jpeg)
+
+### [‘Crown Vic’: een solide genrefilm](https://www.humo.be/tv/crown-vic-een-solide-genrefilm~b0ad7fe8/)
+FILM ★★★ misdaad actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-100-300x169.jpg)
 
 ### [‘Extraction’: volop brutaal geweld en Chris Hemsworth die ‘Rrraaahh!’, ‘Aaarrrh!’ en ‘Grrrrr!’ gromt](https://www.humo.be/tv/extraction-volop-brutaal-geweld-en-chris-hemsworth-die-rrraaahh-aaarrrh-en-grrrrr-gromt~bf272737/)
 FILM ★★★ thriller netflix
@@ -822,6 +902,11 @@ DOCU ★★★ waargebeurd streamz
 SERIE ★★★ drama apple
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/02/america-300x176.jpeg)
+
+### [‘Lizzie’ bevat het sensueelste moordtafereel sinds ‘Basic Instinct’](https://www.humo.be/tv/lizzie-bevat-het-sensueelste-moordtafereel-sinds-basic-instinct~be51460b/)
+FILM ★★★ waargebeurd drama thriller romantisch apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-2021-06-02T153311.044-300x300.jpg)
 
 ### [‘Love on the Spectrum’ is ietsje mechanischer dan ‘Down the Road’](https://www.humo.be/tv/love-on-the-spectrum-is-ietsje-mechanischer-dan-down-the-road~b43e652b/)
 SERIE ★★★ waargebeurd romantisch netflix
@@ -888,10 +973,20 @@ FILM ★★★ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/01/1240-2-300x199.jpeg)
 
+### [Bij het kijken van ‘Horizon Line’ twijfelden we tussen hoogteziekte en lachkramp](https://www.humo.be/tv/bij-het-kijken-van-horizon-line-twijfelden-we-tussen-hoogteziekte-en-lachkramp~b1666f92/)
+FILM ★★½ drama thriller apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-26-300x169.jpg)
+
 ### [De intrige in ‘The Woman in the Window’ stelt teleur](https://www.humo.be/tv/de-intrige-in-the-woman-in-the-window-op-netflix-stelt-teleur~bba5b622/)
 FILM ★★½ drama thriller misdaad netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-65-300x200.jpg)
+
+### [De verf dekt helaas niet zo goed in dit waargebeurde drama over kunstvervalser Han van Meegeren](https://www.humo.be/tv/de-verf-dekt-helaas-niet-zo-goed-in-dit-waargebeurde-drama-over-kunstvervalser-han-van-meegeren~b4816b32/)
+FILM ★★½ waargebeurd drama apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-30-300x200.jpg)
 
 ### [Ergens in ‘The Eddy’ op Netflix zat een goeie reeks, maar ze is er niet uit gekomen](https://www.humo.be/tv/ergens-in-the-eddy-op-netflix-zat-een-goeie-reeks-maar-ze-is-er-niet-uit-gekomen~b6de080e/)
 SERIE ★★½ drama netflix
@@ -938,6 +1033,11 @@ SERIE ★★½ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/03/locke-300x169.jpeg)
 
+### [‘Malcolm & Marie’: geestelijk en zelfs lichamelijk uitputtend getier](https://www.humo.be/tv/malcolm-marie-op-netflix-geestelijk-en-zelfs-lichamelijk-uitputtend-getier~ba456e9c/)
+FILM ★★½ drama romantisch netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-88-300x230.jpg)
+
 ### [‘Perry Mason’ op Streamz: ‘Een nogal nutteloze aanvulling op een verhaal waar niemand nog wakker van ligt’](https://www.humo.be/tv/perry-mason-op-play-een-nogal-nutteloze-aanvulling-op-een-verhaal-waar-niemand-nog-wakker-van-ligt~b905bc50/)
 SERIE ★★½ drama streamz
 
@@ -948,10 +1048,20 @@ SERIE ★★½ komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/06/SF_105_Unit_03658R-300x200.jpg)
 
+### [‘Spell’ is een kruising tussen ‘The Skeleton Key’ en ‘Misery’](https://www.humo.be/tv/spell-is-een-kruising-tussen-the-skeleton-key-en-misery~b7126050/)
+FILM ★★½ thriller actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-17-300x125.jpg)
+
 ### [‘Spenser Confidential’ laat zich even vlot wegslikken als de zondagse bestelling bij de frituur](https://www.humo.be/tv/spenser-confidential-laat-zich-even-vlot-wegslikken-als-de-zondagse-bestelling-bij-de-frituur~b0b1e8ac/)
 FILM ★★½ drama komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/04/spenser-300x179.jpg)
+
+### [‘The Map of Tiny Perfect Things’: ‘Groundhog Day’ voor brave kids!](https://www.humo.be/tv/groundhog-day-voor-brave-kids~b80a79b5/)
+FILM ★★½ drama romantisch amazon
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-29-300x169.jpg)
 
 ### [‘The Ripper’ op Netflix is een degelijk vertelde reconstructie zonder meer](https://www.humo.be/tv/the-ripper-op-netflix-is-een-degelijk-vertelde-reconstructie-zonder-meer~b7ece8a7/)
 SERIE ★★½ waargebeurd netflix
@@ -978,6 +1088,11 @@ SERIE ★★½ thriller netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/05/whitlines-300x207.jpg)
 
+### [](https://www.humo.be/tv/cherry-is-een-aaneenrijging-van-wanstaltige-kneepjes~bf80851d/)
+FILM ★★ drama thriller actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-21-300x200.jpg)
+
 ### [Bij ‘The Tunnel’ ontbrak blijkbaar een budget voor deftige special effects](https://www.humo.be/tv/bij-the-tunnel-ontbrak-blijkbaar-een-budget-voor-deftige-special-effects~bc0bc935/)
 FILM ★★ waargebeurd drama thriller apple mylumtv
 
@@ -993,6 +1108,11 @@ SERIE ★★ waargebeurd streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/11/1240-2020-11-02T122221.481-300x166.jpeg)
 
+### [Die ene onfunctionele lesbische seksscène kan ‘Sentinelle’ op Netflix niet redden](https://www.humo.be/tv/die-ene-onfunctionele-lesbische-seksscene-kan-sentinelle-op-netflix-niet-redden~b364babc/)
+FILM ★★ drama actie netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-82-300x200.jpg)
+
 ### [Er valt aan deze reboot van ‘Mortal Kombat’ minder fun te beleven dan aan de originele cultclassic](https://www.humo.be/tv/er-valt-aan-deze-reboot-van-mortal-kombat-minder-fun-te-beleven-dan-aan-de-originele-cultclassic~bc95ba2d/)
 FILM ★★ thriller actie apple
 
@@ -1003,10 +1123,20 @@ DOCU ★★ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/08/1240-10-300x200.jpeg)
 
+### [Het scenario van ‘Coming 2 America’ lijkt door een ethisch comité door de filters van de huidige tijdsgeest gehaald](https://www.humo.be/tv/het-scenario-van-coming-2-america-lijkt-door-een-ethisch-comite-door-de-filters-van-de-huidige-tijdsgeest-gehaald~b97bf8a8/)
+FILM ★★ komedie amazon
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-84-300x200.jpg)
+
 ### [Jammer dat ‘Mijn slechtste beste vriendin’ op Streamz zulke sterke actrices inlijft voor zulke irritante personages](https://www.humo.be/tv/jammer-dat-mijn-slechtste-beste-vriendin-op-streamz-zulke-sterke-actrices-inlijft-voor-zulke-irritante-personages~bd28b21c/)
 SERIE ★★ drama streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-35-300x149.jpg)
+
+### [Regisseuse Amy Poehler mist de virtuositeit om van de personages in ‘Moxie’ echt ademende jongeren te maken](https://www.humo.be/tv/regisseuse-amy-poehler-mist-de-virtuositeit-om-van-de-personages-in-moxie-echt-ademende-jongeren-te-maken~ba1cdcb6/)
+FILM ★★ drama romantisch netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-85-300x200.jpg)
 
 ### [Soms vang je een glimp op van wat voor een goede serie ‘Jupiter’s Legacy’ op Netflix had kunnen zijn](https://www.humo.be/tv/soms-vang-je-een-glimp-op-van-wat-voor-een-goede-serie-jupiter-s-legacy-op-netflix-had-kunnen-zijn~b7a8fd2a/)
 SERIE ★★ drama netflix
@@ -1043,6 +1173,11 @@ FILM ★★ romantisch komedie netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/11/recensie-holidate-300x168.jpg)
 
+### [‘I’m your Woman’: zelden zoveel mislukte spiegeleieren gezien](https://www.humo.be/tv/i-m-your-woman-zelden-zoveel-mislukte-spiegeleieren-gezien~bc760d23/)
+FILM ★★ drama amazon
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-90-300x200.jpg)
+
 ### [‘La Casa de Papel’: ‘Misschien moet iemand een plan bedenken om Alex Pina uit de gebouwen van Netflix te bevrijden’](https://www.humo.be/tv/la-casa-de-papel-misschien-moet-iemand-een-plan-bedenken-om-alex-pina-uit-de-gebouwen-van-netflix-te-bevrijden~b625c8ea/)
 SERIE ★★ drama thriller netflix
 
@@ -1058,6 +1193,16 @@ FILM ★★ drama disney
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/01/1240-2021-01-05T074001.915-300x169.jpeg)
 
+### [‘Outside the Wire’: helaas valt er weinig fun te beleven aan deze sof](https://www.humo.be/tv/outside-the-wire-helaas-valt-er-weinig-fun-te-beleven-aan-deze-sof~b6a46fcd/)
+FILM ★★ actie netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-96-300x200.jpg)
+
+### [‘Paper Lives’ bevat zoveel melodrama dat onze eigen darmsnaren begonnen te trillen](https://www.humo.be/tv/paper-lives-bevat-zoveel-melodrama-dat-onze-eigen-darmsnaren-begonnen-te-trillen~b766a500/)
+FILM ★★ drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-20-300x191.jpg)
+
 ### [‘Room 2806′: dat Netflix het graag true crime noemt, betekent niet dat het plots geen sensatie-tv meer is](https://www.humo.be/tv/room-2806-dat-netflix-het-graag-true-crime-noemt-betekent-niet-dat-het-plots-geen-sensatie-tv-meer-is~b2c93e0f/)
 DOCU ★★ waargebeurd netflix
 
@@ -1067,6 +1212,11 @@ DOCU ★★ waargebeurd netflix
 DOCU ★★ waargebeurd streamz
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/01/1240-2021-01-05T074351.664-300x169.jpeg)
+
+### [‘Yes Day’? Hier past een duidelijke neen!](https://www.humo.be/tv/yes-day-hier-past-een-duidelijke-neen~b69e31cc/)
+FILM ★★ drama komedie netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-25-300x200.jpg)
 
 ### [Voor ‘Death to 2020’ op Netflix geldt hetzelfde als voor héél 2020: afspoelen en verder](https://www.humo.be/tv/voor-death-to-2020-op-netflix-geldt-hetzelfde-als-voor-heel-2020-afspoelen-en-verder~b4c850b0/)
 FILM ★½ komedie netflix
@@ -1108,10 +1258,20 @@ DOCU ★ waargebeurd netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-29-300x174.jpg)
 
+### [Dat potje pruimduimen in de jacuzzi kan ‘Deadly Illusions’ op Netflix niet redden](https://www.humo.be/tv/dat-potje-pruimduimen-in-de-jacuzzi-kan-deadly-illusions-op-netflix-niet-redden~beec5c3d/)
+FILM ★ thriller romantisch netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-19-300x159.jpg)
+
 ### [Het plot van ‘The Rain’ (seizoen 3) heeft meer gaten dan een blok Leerdammer](https://www.humo.be/tv/the-rain-seizoen-3-op-netflix-motiveerde-mij-om-zelf-een-concept-voor-een-netflix-reeks-te-bedenken~b364f54c/)
 SERIE ★ thriller netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/08/rain-300x178.jpeg)
+
+### [Na ‘Penguin Bloom’ wilden we een vogel wurgen](https://www.humo.be/tv/na-penguin-bloom-op-netflix-wilden-we-een-vogel-wurgen~bc1e406b/)
+FILM ★ drama netflix
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/763-31-300x200.jpg)
 
 ### [Netflix had ons wel mogen waarschuwen dat ‘A Week Away’ een christelijke musical is](https://www.humo.be/tv/netflix-had-ons-wel-mogen-waarschuwen-dat-a-week-away-een-christelijke-musical-is~b2c14360/)
 FILM ★ komedie netflix
@@ -1132,6 +1292,11 @@ FILM ★ actie amazon
 FILM ★ drama netflix
 
 ![thumbnail](https://projecten.humo.be/wp-content/uploads/2020/07/365-300x163.jpg)
+
+### [‘Breach’ is zó verbijsterend slecht dat een mens er perplex van staat](https://www.humo.be/tv/breach-is-zo-verbijsterend-slecht-dat-een-mens-er-perplex-van-staat~b86ebad0/)
+FILM ★ actie apple
+
+![thumbnail](https://projecten.humo.be/wp-content/uploads/2021/06/1240-98-300x169.jpg)
 
 ### [‘Warrior Nun’ op Netflix: de titel is plezieriger dan de kijkbeurt](https://www.humo.be/tv/warrior-nun-op-netflix-de-titel-is-plezieriger-dan-de-kijkbeurt~b0298d63/)
 SERIE ★ drama netflix
