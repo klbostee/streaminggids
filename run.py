@@ -3,8 +3,8 @@ from bs4 import BeautifulSoup
 
 
 res = requests.get("https://projecten.humo.be/tv-gids/", cookies={
-    "pws": "functional%7Canalytics%7Ccontent_recommendation%7Ctargeted_advertising%7Csocial_media",
-    "pwv": "1"
+    "authId": "1a3f35c3-4417-4c51-8265-f9afaa2d43bb",
+    "consentUUID": "9e33b117-1a1a-4e65-bde2-4b64512061c7_8",
 })
 
 soup = BeautifulSoup(res.content, "html.parser")
